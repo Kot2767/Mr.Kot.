@@ -1,2 +1,0 @@
-# Mr.Kot.
-Mr.Kot.
